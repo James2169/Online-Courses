@@ -1,4 +1,4 @@
-**Have you ever thought about turning your passion into a paycheck?**
+# How to Create Online Courses: Launch Your First Course 2025
 
 Today, more than ever, creating online courses is not just for big companies or famous influencers. In 2025, it’s *your time* to share your knowledge with the world and get paid for it.
 
