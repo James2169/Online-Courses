@@ -43,8 +43,9 @@ With this Kartra coupon, you will get access to the following:
 
 Grab a [**30-day free trial**](https://try.kartra.com/u67pbmjpk9id-mj69wp) on any Kartra plan. Additionally, you will get [**20% off**](https://try.kartra.com/u67pbmjpk9id-mj69wp) on your annual plan if you decide to upgrade your plan with this Kartra Coupon code.
 
-![Kartra Free Trial](https://github.com/user-attachments/assets/1adf665c-990d-4841-addb-d49500791cef)
+![Free trial on Kartra](https://github.com/user-attachments/assets/8f29d688-6d69-4a4a-a5ed-a5e77e92ad66)
 
+![Kartra Free Trial](https://github.com/user-attachments/assets/1adf665c-990d-4841-addb-d49500791cef)
 
 ## Kartra Discount | Get 25% Off [Growth Plan]
 
@@ -102,31 +103,30 @@ This is a limited-time
 
 Follow these **6 simple steps** to claim a Kartra coupon:
 
-Step 1: Go to the official [Kartra website](https://try.kartra.com/u67pbmjpk9id-mj69wp) and click on the pricing section.
+Step 1: Go to the official **[Kartra website](https://try.kartra.com/u67pbmjpk9id-mj69wp)** and click on the pricing section.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd8PtBmSCFD6suyPLBA1nBLKNz5122Qpss5uv86EwmCHcnOCzkzYiwoHUN0SRExrjzB9ClIFuvm1F6WnyBojbGYFKkx13NSQUKYLg0Plpfp8lF-8ZzW_hu03cHO32umEfDBae9V?key=9h_K3GuzgdpObXHB_Vpx9dkX)
+![kartra official website](https://github.com/user-attachments/assets/2331626f-bafb-4925-8d62-08df501d8099)
 
-Step 2: Choose the plan that best fits your needs.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcnSV4y2oo9oSKa_8RsxBm0j67YMxFV-KwBzrB4z003p4ceMTQE9xJURghs7Juy32RaNTa-nbqCSmiGr_ib37vhfc8-GWdU8cJD1UxLx6xqn7YYMn0ieKw0DjaFiF8rm391WJ7-?key=9h_K3GuzgdpObXHB_Vpx9dkX)
+Step 2: **Choose the plan** that best fits your needs.
 
-Step 3: Create an Account by signing up.
+![choose a plan](https://github.com/user-attachments/assets/544a3502-1aa6-4160-a823-9fc9e4a9d6ff)
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfzAARInhW8HB0CLarO9-ff8QXJSiw0BkoaIzDF7h4IK46URGZuhfstkPVWgaQ1pEugqfoY2POS-sudcdvSI5UVK_ctD9LJS9_qqWnqFADDcdFqouFpi6s5vk9E25Ju5fS-_q2G3w?key=9h_K3GuzgdpObXHB_Vpx9dkX)
+Step 3: **Create an Account** by signing up.
 
-Step 4: Enter Billing Information by filling in your payment details.
+![Create an account](https://github.com/user-attachments/assets/5489f209-2ac1-48fb-a1e4-91d50e9cb9f3)
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXez8AanpuiJ2fW6HKMAgVK-_zaZcYsB6lzX2cBNdaCi8UPkiRQwRJzLyNb7jiIPlwhBnJPwH9oddl40dMn4dRL2RTOyrM0vQstMvnR2PNqbmYxDNnwfMGiB80se28cD01qDcFe-Og?key=9h_K3GuzgdpObXHB_Vpx9dkX)
+Step 4: **Enter Billing Information** by filling in your payment details.
+
+![enter billing information](https://github.com/user-attachments/assets/5dcdacb7-2c15-484b-b1cd-f09d2ffc1c0f)
 
 Step 5: The coupon code will be directly applied at the checkout.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd9lz75wKCoNMuB2MvB1Rp_7MiQKuT4CWpBGuDGOtj0yZMqWEwKIlkhkdeEaDfzjmAjcELwEjc2RQ_N_qdvy3l4EEwXliH3J4b5Fr_7PGOtpaK4aZ5sYH5Ke6RvJJ8HD69sWjY8lg?key=9h_K3GuzgdpObXHB_Vpx9dkX)
+![discount applied](https://github.com/user-attachments/assets/a6701180-a11d-4675-b40d-1b7ac88e4037)
 
 Step 6: Review your order and finalize the payment.
 
 That’s it! You have successfully claimed your Kartra coupon.
-
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcPG9nwuuGD0vPdrCG8diwWAgo73Z8DgHVXHtPIg2QOBjXsEtfp9UhQEobIlDLz6XRN7itYaen2ReSN8SN2Y1xqZPK1NRrG5nI205ESU1xtpbxiHXSlGFZi4vXzZIzThb3ToCYi?key=9h_K3GuzgdpObXHB_Vpx9dkX)
 
 ## **What to Do If the Discount Code Doesn’t Work?**
 
@@ -141,6 +141,9 @@ If your problem still persists, contact [Kartra support](https://support.kartra.
 ## **Kartra Pricing Plans**
 
 Kartra mainly offers **4 pricing plan**s. I have created a comprehensive table below that you can check to have a better understanding.
+
+![Kartra pricing plans](https://github.com/user-attachments/assets/eefacd90-ce2a-4cb3-a7b8-6a57c1962229)
+
 
 | **Feature** | **Starter** | **Growth** | **Professional** | **Enterprise** |
 | --- | --- | --- | --- | --- |
@@ -164,8 +167,6 @@ Kartra mainly offers **4 pricing plan**s. I have created a comprehensive table b
 | Real-Time Funnel Analytics |  |  | ✔ | ✔ |
 | Helpdesk Live Chat |  |  | ✔ | ✔ |
 | Full Access to Kartra Support | ✔ | ✔ | ✔ | ✔ |
-
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcd7UT3K4fXnqmMlPpUsh0xmKnAyyS4U0rJKipzqMIC73_ZEiPrGd__9uGTnDp2FV0AmCTg6MQok0DBSUzfYaDnXRsgQc4AfVTMAHGV9_uG4waOt6l-y-R8pwzgF7aOV_OdlmpB?key=9h_K3GuzgdpObXHB_Vpx9dkX)
 
 Don’t forget to use those juicy Kartra discount coupons to claim up to **40% off** on your subscription.
 
