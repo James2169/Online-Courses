@@ -38,7 +38,7 @@ Before I found the Linux Foundation, I had used some other platforms as well, li
 
 However, I must say I was impressed with the easy-to-navigate interface of the website and its structured learning course videos.
 
-![|624x273|624x272](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeMJWK_ZrtjZpyl9xhNSD2qlXcZ1sOAzTBtLM1TvTz59-gangfyARgEYkGjtQGFzuy_ijITfa8nHqKIBxY1q03qk9uIRjDIBpDPV0cD-Eio5CNX4v5iyYX66IaQ05IYEzy5b1mKdA?key=trQ9egkIqsnAMemWaW3y0Lz-)
+![Linux Foudation official website](https://github.com/user-attachments/assets/a35d108f-f8d8-465a-90e0-7a98bc7b0cdc)
 
 Each course is well-designed, which helps me to grasp even complicated topics easily.
 
@@ -60,13 +60,15 @@ As I was a complete beginner to open-source development, the very first course I
 
 And I will suggest it to you too if you are a complete beginner like I was.
 
-![|624x273|624x272](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdVYjJ1IhmfZg9UqTV1RKqBOdtzsRoGHNwzGc9NSwB5fb8DU56HiBxfR-fGzN5hHgR5-vr4eDvBFiGfpUqAFHayAquWPho-v4k2lU9li1T1PNOaBkPBls8XLZSoMOSNYE0jieE-KQ?key=trQ9egkIqsnAMemWaW3y0Lz-)
+![A Beginner's Guide to Open Source Development](https://github.com/user-attachments/assets/7bd2893b-42b3-4859-90cf-6a0ce4d64dde)
 
 Here you will learn the fundamentals of what open source is to contributing to projects.
 
 Such programs clarify the open-source ecosystem, encouraging more professionals to participate and contribute.
 
-And the best part is that you can start it for free at $0 cost. ![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdd3Aez_luBJ_PaeEoJtCh2yyrchPhcekoHY56ew3DUwSuL_QYmOKwGQJ-nSo-MT3xyXsGobN1AN1-iKD2W7SVsSaNl-XwNFUuH9Ct8MboSwd2z1d_2TQQa6TME_9-UeatZrxMaZA?key=trQ9egkIqsnAMemWaW3y0Lz-)
+And the best part is that you can start it for free at $0 cost.
+
+![Get Linux Foundation Training](https://github.com/user-attachments/assets/e01f5caf-2564-4324-a350-36e417b89622)
 
 ## What Other Courses Are Offered?
 
@@ -90,7 +92,7 @@ The foundation's influence spans multiple technologies that have become industry
 
 Kubernetes is an open-source platform for automating the deployment, scaling, and management of containerized applications.
 
-![|624x273|624x272](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfAVGS4qv0sXcQ72LjBIJ5G_kKAQ-AGIM50s7agB_xpLhz6YzwYTzT7aYq9Sd4IPctceJjbFHCPPLQAfc4313hBafkh3h4WPDEcN2QJB3aibrBh81ibZdV8RvT858rIohsW-cuS?key=trQ9egkIqsnAMemWaW3y0Lz-)
+![Kubernetes fundamentals](https://github.com/user-attachments/assets/41e7cfa1-7a77-4bf7-ad77-9c095bf344f3)
 
 Why It Matters 🤔: Imagine manually managing thousands of applications across different servers. Sounds like a nightmare, right?
 
@@ -108,7 +110,7 @@ Linux Foundation Training Coverage: It offers courses such as Kubernetes Fundame
 
 Node.js is a JavaScript runtime built on Chrome's V8 engine, designed for developing scalable and high-performance network applications.
 
-![|624x273|624x272](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfqi1Q-hCSzkIiWf48BRJmmWBYVpTenWfcG8pUZoBd90E6-WX0D9ErYfEND7yT0QE_KEYWem-iodxIhOnvIulMTjvmVrHMvvnkbfjBTIteH4L8ah4zt1416t9aSgx_6v2zJBMAJFw?key=trQ9egkIqsnAMemWaW3y0Lz-)
+![Node js on Linux Foundation](https://github.com/user-attachments/assets/7b86e08e-bd1a-4372-8083-3cd3a938d731)
 
 Why It Matters 🤔: Ever wondered how real-time apps like WhatsApp or live stock trading platforms work? All credit goes to Node.js, which makes this possible by handling thousands of connections simultaneously without breaking a sweat.
 
@@ -124,9 +126,11 @@ Linux Foundation Training Coverage: Courses such as Node.js Application Developm
 
 Hyperledger is an open-source blockchain framework that is crucial to learn if you want to advance cross-industry blockchain technologies.
 
-![|624x273|624x272](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdsBVb3dRBqFAF8sP1M21C_31_9ycR_dKeZ96BbrT7BqrHto9wglMF7L1eKMhhvZ6frmV-sCUfMSLr1Ivp-ghSpsRwb1wvRQt8MZjHsjmHH2SZi7UQTIY-eEoBmMNFh9nTnMgQwGQ?key=trQ9egkIqsnAMemWaW3y0Lz-)
+![hyperledger](https://github.com/user-attachments/assets/6ee13b55-ff26-45e6-82df-2d1d4390d383)
 
-Why It Matters 🤔: Unlike public blockchains like Bitcoin, Hyperledger focuses on enterprise use cases, where businesses need secure, permissioned, and scalable blockchain networks. ![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd98WaMsKxbVGO-PYEMFskmSckaEsAr2xup9Fj0I-CpbdkpXPtcLZDRHR8wyEWEEfJuceYvaJp6WNg5TOKHZUCuHXpx1pqs1WtMryGk2jGbOmlYXdZ5y6dS0KTiny_aGs52OX-Ucw?key=trQ9egkIqsnAMemWaW3y0Lz-)
+Why It Matters 🤔: Unlike public blockchains like Bitcoin, Hyperledger focuses on enterprise use cases, where businesses need secure, permissioned, and scalable blockchain networks. 
+
+![Get Linux Foundation Training](https://github.com/user-attachments/assets/cc931879-7a24-470d-a534-da5914377054)
 
 Use Cases:
 
@@ -169,7 +173,9 @@ Key Benefits:
 * ✅ DevOps engineers can gain expertise in tools like Kubernetes, Docker, and Ansible.
 * ✅ Cybersecurity professionals can leverage Linux for penetration testing, forensics, and system hardening.
 
-Fun Fact: Nearly 100% of the world's supercomputers run on Linux. If you’re managing servers, you’re probably already working with Linux even if you don’t realize it yet! ![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXck4fDvsIG5-g6tnpr525tff-up0Nt00Xs8xgtADDCyQgmLpt6q5BswxM7MWYL_hQXAAEFGNegXeSHnV_EtpEHZl--56ggIxG9MSJZRbPcTC1BKwJHaH403lf38BZYI6HIkN2v6lg?key=trQ9egkIqsnAMemWaW3y0Lz-)
+Fun Fact: Nearly 100% of the world's supercomputers run on Linux. If you’re managing servers, you’re probably already working with Linux even if you don’t realize it yet! 
+
+![Get Linux Foundation Training](https://github.com/user-attachments/assets/c3985b27-417d-4a47-b49b-9770bf0b4429)
 
 ### 2. Organizations: Upskilling Employees in Open-Source Technologies
 
@@ -285,7 +291,7 @@ I hope I was able to answer all your questions and doubts in this Linux Foundati
 
 If you’re serious about a career in open-source technology, DevOps, cloud computing, or cybersecurity, then the Linux Foundation offers some of the best industry-recognized training and certifications out there.
 
-![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfmTwBpXJudeXouUfn2fQvu8cZQmyvdBa9qA6zMfpY_YDnFEgsRnu718CwKsZRGlHrBF3pDrlWdMU55rvBlJ3I_XDO4BbshZe0HejpUgEQlEJo3R-n1pmhGjjLnkkBhM5OkoCiW2A?key=trQ9egkIqsnAMemWaW3y0Lz-)
+![Get Linux Foundation Training](https://github.com/user-attachments/assets/4b76450c-0b03-45a2-938b-26f75b11cc47)
 
 ✅ For Beginners: It’s a fantastic starting point with structured courses like “Introduction to Open Source Development” and Linux fundamentals.
 
