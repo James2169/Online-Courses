@@ -12,9 +12,10 @@ Without wasting time, let’s dive into it and grab your favorite IXL discount c
 
 ## IXL Coupon Code | Get a Flat 50% Discount
 
-Get a [**50% off](https://in.ixl.com/)** coupon code on your IXL membership, get a math and English combo, and save up to $50 on your subscription.
+Get a **[50% off](https://in.ixl.com/)** coupon code on your IXL membership, get a math and English combo, and save up to $50 on your subscription.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeI4yAA4RpYt7zraaklRxCNaBRyggFbrW4JW9Mf0N9SYfrcAstqqZ8XndnXlv3MS4euMw_WMGes6ZgzoxTb634lnd905rpuEqzttuEi2YeOBw8L7RFn41pjPK74TumPQOLw3_thzg?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![IXL 50% Off coupon](https://github.com/user-attachments/assets/ea683f07-c4cb-4d88-b78e-789420c7cdec)
+](https://in.ixl.com/)
 
 With this IXL Coupon deal, you will get access to:
 
@@ -28,7 +29,8 @@ With this IXL Coupon deal, you will get access to:
 
 Grab this [**20% off**](https://in.ixl.com/) IXL coupon and start your learning journey without spending too much. Get access to **800+ core subject skills** for just **$14.95/month**.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeI4yAA4RpYt7zraaklRxCNaBRyggFbrW4JW9Mf0N9SYfrcAstqqZ8XndnXlv3MS4euMw_WMGes6ZgzoxTb634lnd905rpuEqzttuEi2YeOBw8L7RFn41pjPK74TumPQOLw3_thzg?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![IXL discount code](https://github.com/user-attachments/assets/2293a730-6fce-4d0d-bb4f-cd6b193c8349)
+](https://in.ixl.com/)
 
 This IXL promo Deal gives you access to:
 
@@ -44,9 +46,10 @@ This IXL promo Deal gives you access to:
 
 ## IXL Discount for Homeschoolers | Get 30% Off
 
-Grab a [30% discount](https://in.ixl.com/) for homeschoolers on IXL and learn subjects like Maths, science, and arts in the comfort of your home.
+Grab a **[30% discount](https://in.ixl.com/)** for homeschoolers on IXL and learn subjects like Maths, science, and arts in the comfort of your home.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcYQAy1fF2bME4gKDIAkZktMZYtK8wYB6AWLRntGaL3VJDKLahQ-97HMTcIfEweBBmnbliSr2ES8VHuIazWWi1V_xwoxC_ax8WuPDGpkrIhMz-uLDaC5USGGRcRxNVziWAn38Iu2w?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![IXL discount code 30%](https://github.com/user-attachments/assets/46800e0e-5e09-477e-8798-2f0d578702b3)
+](https://in.ixl.com/)
 
 **👉 Unlimited Access to IXL's Limitless Practice Problems**: Students can practice as many questions as they need, without restrictions, and get their queries answered multiple times until they master a topic.
 
@@ -58,9 +61,10 @@ Grab a [30% discount](https://in.ixl.com/) for homeschoolers on IXL and learn su
 
 ## IXL Discount Code | Get 45% Off – Core Subjects Yearly Plan 🔥
 
-Claim this [45% off](https://in.ixl.com/) deal on IXL and get the annual IXL membership at just **$119.24** instead of paying **$239.40**. This is a saving of a whopping **$120**.
+Claim this **[45% off](https://in.ixl.com/)** deal on IXL and get the annual IXL membership at just **$119.24** instead of paying **$239.40**. This is a saving of a whopping **$120**.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeI4yAA4RpYt7zraaklRxCNaBRyggFbrW4JW9Mf0N9SYfrcAstqqZ8XndnXlv3MS4euMw_WMGes6ZgzoxTb634lnd905rpuEqzttuEi2YeOBw8L7RFn41pjPK74TumPQOLw3_thzg?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![IXL 45% Off Coupon](https://github.com/user-attachments/assets/ab0fa86b-c082-4fbb-be99-5d1d344bfbdb)
+](https://in.ixl.com/)
 
 ## Claim 20% Off | IXL Discount For Teachers
 
@@ -68,23 +72,26 @@ IXL offers **special [20% discounts for teachers](https://in.ixl.com/)** to help
 
 This is a limited-time offer exclusively for teachers. Click the button below to claim your IXL discount for teachers now!
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeI4yAA4RpYt7zraaklRxCNaBRyggFbrW4JW9Mf0N9SYfrcAstqqZ8XndnXlv3MS4euMw_WMGes6ZgzoxTb634lnd905rpuEqzttuEi2YeOBw8L7RFn41pjPK74TumPQOLw3_thzg?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![ixl 20% off promo code](https://github.com/user-attachments/assets/643b6836-028f-4b36-9997-050ee3676f81)
+](https://in.ixl.com/)
 
 Educators can often access **exclusive offers, bulk pricing for classrooms, and free trials**.
 
 ## Get 15% Off | IXL New User Discount
 
-Get a welcome [15% off](https://in.ixl.com/) on IXL and kickstart your learning journey with the experts on the platform.
+Get a welcome **[15% off](https://in.ixl.com/)** on IXL and kickstart your learning journey with the experts on the platform.
 
 Click the IXL discount button below to secure your seat now!
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcYQAy1fF2bME4gKDIAkZktMZYtK8wYB6AWLRntGaL3VJDKLahQ-97HMTcIfEweBBmnbliSr2ES8VHuIazWWi1V_xwoxC_ax8WuPDGpkrIhMz-uLDaC5USGGRcRxNVziWAn38Iu2w?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![IXL promo code](https://github.com/user-attachments/assets/707f1279-fec8-4479-9a44-3ca3920d32ca)
+](https://in.ixl.com/)
 
 ## IXL Promo Code to Get 25% Off – Single Subject Monthly Plan
 
 Get [25% off](https://in.ixl.com/) instantly if you want to master only a single subject. Instead of paying **$7.45/month**, you get **$2.50 off** with this IXL Promo Code.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcYQAy1fF2bME4gKDIAkZktMZYtK8wYB6AWLRntGaL3VJDKLahQ-97HMTcIfEweBBmnbliSr2ES8VHuIazWWi1V_xwoxC_ax8WuPDGpkrIhMz-uLDaC5USGGRcRxNVziWAn38Iu2w?key=wbXn43HFEYoIIl7Exc_GIqVX)
+[![ixl promo discount](https://github.com/user-attachments/assets/67da98c1-4fe0-4e33-9cbd-8e63e72144f6)
+](https://in.ixl.com/)
 
 Perfect for kids focusing on just **math, language arts, or science** without paying extra.
 
@@ -103,21 +110,25 @@ Here is a list of additional IXL promo codes for 2025.
 
 Follow these simple steps to claim your IXL coupon.
 
-**Step 1:** First, visit the [CXL website](https://in.ixl.com/) and pick how many kids will use IXL.
+**Step 1:** First, visit the **[CXL website](https://in.ixl.com/)** and pick how many kids will use IXL.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeNYsjcZ1Ge7EHfMUzLmc7B1Toldl4IuQpmTkmU3gZagubolFVXY9ZLfwZSbxJht4hbkId_uHfQYrhS1wwV4FQkJIRSSx4Xum2IT-SfYl_-qnaJ2PMYZMZfEeoabZxldb2a42HT3A?key=wbXn43HFEYoIIl7Exc_GIqVX)
+![IXL offiial website](https://github.com/user-attachments/assets/b9b4c413-b187-4a2f-9f0f-8939c450825e)
+
 
 **Step 2:** Then choose your plan like Single Subject, Core Subjects, or Combo Package.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc-hdXVgnxlu5z774pk-HYY_dNvcOTVW1OCIoIp7L3jVPk5oRV0EqvSGumwCCoBwGpsubawHPT1wKogzlA6RJ6-hcQXxVN6yIEdaYVaXb0Wz8ntut-hGD0QQq8HJ5t98B7m_KGWQw?key=wbXn43HFEYoIIl7Exc_GIqVX)
+![Choose your plan](https://github.com/user-attachments/assets/388ba81b-24d0-4f98-9a32-5e80ba443ac4)
+
 
 **Step 3:** Decide if you want to pay monthly or yearly (yearly gives a bigger discount) and enter your payment details.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd8VXvW3c_GgJcKNXk6TnrHjYJn871MKKXvckf46z0R36y3jquYnOHQCKA9ne1Mov5J8GzNScRzQFow7DzJFxXfIwDOSl5k2zh71EX6J9kykCyh6GezEZMH3UQKWLQOuoAhGx0r-A?key=wbXn43HFEYoIIl7Exc_GIqVX)
+![payment option](https://github.com/user-attachments/assets/070b8e59-eb6b-4794-b9e4-ea54e6ff24ad)
 
-**Step 4:** Before clicking ‘Join IXL’, find the coupon code box copy your IXL coupon code, paste it in the box, and apply it.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc88Cu7eQCJCuqRWQTDRYlBSFastKxvtFaW2yE1-m4YV81Ms3yLsn_-_8O1p8nmMjmoOW7oemALDjw1rOVzlRMcBVqzbySXrny2yCPsLi4zLFtKsnZai0Ft8JvtWV7d2dp7-IYN?key=wbXn43HFEYoIIl7Exc_GIqVX)
+**Step 4:** Before clicking ‘**Join IXL**’, find the coupon code box copy your IXL coupon code, paste it in the box, and apply it.
+
+![coupon code box](https://github.com/user-attachments/assets/281a8d83-5a64-4f71-8cc4-0c3c89ab55ba)
+
 
 **Step 5:** Check that the discount is applied, then finish signing up.
 
