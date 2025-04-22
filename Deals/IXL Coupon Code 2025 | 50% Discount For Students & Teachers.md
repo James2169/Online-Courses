@@ -19,30 +19,18 @@ Get a **[50% off](https://in.ixl.com/)** coupon code on your IXL membership, get
 
 With this IXL Coupon deal, you will get access to:
 
-- **👉 Personalized Learning:** Adapts to each student's skill level.
-- **👉 Comprehensive Curriculum:** Covers **8,500+** skills across multiple subjects.
-- **👉 Real-Time Analytics:** Helps parents and teachers track student progress.
-- **👉 IXL SmartScore:** Measures mastery and boosts confidence.
-- **👉 Rewards & Certificates:** Motivates learners with achievements.
+- **🌟 Tailored Education:** Customizes lessons to match each learner's abilities.
+- **📚 Extensive Content:** Encompasses over **8,500** skills across diverse subjects.
+- **📊 Instant Insights:** Enables educators and parents to monitor progress in real time.
+- **🚀 IXL Mastery Metric:** Tracks skill proficiency and fosters student confidence.
+- **🏆 Incentives & Awards:** Encourages engagement through recognition and milestones.
 
-## IXL 20% Off Coupon Code – Core Subjects Monthly Plan
+## IXL Discount Code | Get 45% Off – Core Subjects Yearly Plan 🔥
 
-Grab this [**20% off**](https://in.ixl.com/) IXL coupon and start your learning journey without spending too much. Get access to **800+ core subject skills** for just **$14.95/month**.
+Claim this **[45% off](https://in.ixl.com/)** deal on IXL and get the annual IXL membership at just **$119.24** instead of paying **$239.40**. This is a saving of a whopping **$120**.
 
-[![IXL discount code](https://github.com/user-attachments/assets/2293a730-6fce-4d0d-bb4f-cd6b193c8349)
+[![IXL 45% Off Coupon](https://github.com/user-attachments/assets/ab0fa86b-c082-4fbb-be99-5d1d344bfbdb)
 ](https://in.ixl.com/)
-
-This IXL promo Deal gives you access to:
-
-**👉 Unlimited Practice in Over 4,500 Topics** – Students can practice endlessly across multiple subjects without any limits, helping them master concepts at their own pace.
-
-**👉 Interactive Questions to Cultivate Curiosity** – Engaging exercises like drag-and-drop and real-world problems make learning more interesting and encourage exploration.
-
-**👉 Detailed Explanations to Teach Concepts** – Every incorrect answer comes with a step-by-step breakdown, ensuring students understand mistakes and improve.
-
-**👉 Awards to Celebrate Hard Work** – Badges, certificates, and achievements keep students motivated by turning progress into a fun, rewarding experience.
-
-**👉 Mobile Apps for Practice on the Go** – With IXL’s mobile app, students can continue learning anytime, anywhere, with progress syncing across devices.
 
 ## IXL Discount for Homeschoolers | Get 30% Off
 
@@ -59,16 +47,24 @@ Grab a **[30% discount](https://in.ixl.com/)** for homeschoolers on IXL and lear
 
 **👉 Meaningful, Up-to-Date Tracking on Your Child's Progress** – Parents and teachers get detailed reports on strengths, weaknesses, and improvement areas, making it easy to track growth in real-time.
 
-## IXL Discount Code | Get 45% Off – Core Subjects Yearly Plan 🔥
+## IXL 20% Off Coupon Code – Core Subjects Monthly Plan
 
-Claim this **[45% off](https://in.ixl.com/)** deal on IXL and get the annual IXL membership at just **$119.24** instead of paying **$239.40**. This is a saving of a whopping **$120**.
+Grab this [**20% off**](https://in.ixl.com/) IXL coupon and start your learning journey without spending too much. Get access to **800+ core subject skills** for just **$14.95/month**.
 
-[![IXL 45% Off Coupon](https://github.com/user-attachments/assets/ab0fa86b-c082-4fbb-be99-5d1d344bfbdb)
+[![IXL discount code](https://github.com/user-attachments/assets/2293a730-6fce-4d0d-bb4f-cd6b193c8349)
 ](https://in.ixl.com/)
 
-## Claim 20% Off | IXL Discount For Teachers
+This IXL promo Deal gives you access to:
 
-IXL offers **special [20% discounts for teachers](https://in.ixl.com/)** to help them bring personalized learning into the classroom at a lower cost.
+- **🌐 Endless Skill-Building Opportunities** – Dive into over **4,500** topics across subjects, allowing students to hone skills at their own rhythm without restrictions.
+- **🧠 Engaging, Curiosity-Driven Tasks** – Interactive challenges, including drag-and-drop and real-life scenarios, spark interest and inspire deeper exploration.
+- **📘 Clear, Step-by-Step Guidance** – Each wrong answer is paired with a detailed explanation, helping students grasp concepts and grow from errors.
+- **🎉 Recognition for Effort** – Medals, certificates, and milestones transform progress into an exciting, rewarding journey that fuels motivation.
+- **📱 Learn Anywhere, Anytime** – IXL’s mobile app syncs progress across devices, empowering students to practice seamlessly on the go.
+
+## Claim 30% Off | IXL Discount For Teachers
+
+IXL offers **special [30% discounts for teachers](https://in.ixl.com/)** to help them bring personalized learning into the classroom at a lower cost.
 
 This is a limited-time offer exclusively for teachers. Click the button below to claim your IXL discount for teachers now!
 
@@ -85,15 +81,6 @@ Click the IXL discount button below to secure your seat now!
 
 [![IXL promo code](https://github.com/user-attachments/assets/707f1279-fec8-4479-9a44-3ca3920d32ca)
 ](https://in.ixl.com/)
-
-## IXL Promo Code to Get 25% Off – Single Subject Monthly Plan
-
-Get [25% off](https://in.ixl.com/) instantly if you want to master only a single subject. Instead of paying **$7.45/month**, you get **$2.50 off** with this IXL Promo Code.
-
-[![ixl promo discount](https://github.com/user-attachments/assets/67da98c1-4fe0-4e33-9cbd-8e63e72144f6)
-](https://in.ixl.com/)
-
-Perfect for kids focusing on just **math, language arts, or science** without paying extra.
 
 ## More IXL Promo Codes 2025
 
