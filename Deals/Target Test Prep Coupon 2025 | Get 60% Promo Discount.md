@@ -1,4 +1,4 @@
-# Target Test Prep Coupons 2025 | Get 60% Promo Discount
+# Target Test Prep Coupon 2025 | Get 60% Promo Discount
 
 Want expert guidance on your GMAT, GRE, EA, or SAT, without breaking your bank?
 
