@@ -105,6 +105,20 @@ Hurry! Grab this Google AI essentials for free now. Click the button below.
 - **👉 Complete in under 10 hours** at your own pace.
 - **👉 Get a free certificate** to showcase your AI knowledge.
 
+## Get $200 off Coursera Plus Annual Plans
+
+Claim a **[$200 discount](https://imp.i384100.net/XmyPEa)** now on the annual subscription of Coursera Plus and get access to its extensive library, expert-led courses, and certification at a discounted price.
+
+[![Coursera Plus $200 off](https://github.com/user-attachments/assets/5c2a12aa-50c5-4e52-8a60-b961b1630f71)
+](https://imp.i384100.net/XmyPEa)
+
+## Coursera Plus $299 Discount for Students
+
+Now, get a **[$299 discount](https://imp.i384100.net/XmyPEa)** if you are a student and have a valid student ID. Use this discount code at checkout and save up to **40%** on your annual subscription.
+
+[![coursera plus student discount](https://github.com/user-attachments/assets/a19c5efa-0e67-484a-b6fd-73c697f544c7)
+](https://imp.i384100.net/XmyPEa)
+
 ## Coursera $1 Offer[expired]
 
 Another incredible offer from Coursera was the [$1 subscription](https://imp.i384100.net/XmyPEa).
